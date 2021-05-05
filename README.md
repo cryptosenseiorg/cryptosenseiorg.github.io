@@ -1,4 +1,4 @@
-# [CryptoSenseil: Showing people the new world of crypto.](https://cryptosensei.org)
+# [CryptoSensei: Showing people the new world of crypto.](https://cryptosensei.org)
 
 ### [Twitter](https://twitter.com/CryptoSenseiorg/)
 ### [Instagram](https://www.instagram.com/cryptosenseiorg/)
